@@ -1,3 +1,3 @@
-<img src="https://media1.tenor.com/m/hfXrYHFiFrYAAAAd/noelle-holiday-noelle.gif" alt="a cartoon character is brushing her teeth with a blue toothbrush ."/>
-still learning how to code here so this MIGHT change....
-(no it wont im lazy asf </3)
+<img src="https://github.com/user-attachments/assets/2d3bb836-d80e-46ab-84ef-aefbba21d92f" />
+
+" There's still time ... Don't give up Yet ."
